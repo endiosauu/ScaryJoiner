@@ -1,0 +1,2 @@
+# ScaryJoiner
+Discord Voice Joner
