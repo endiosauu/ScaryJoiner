@@ -1,4 +1,4 @@
-![371051538-a819459a-4715-44ed-9ef1-e6d6e7521715](https://github.com/user-attachments/assets/f76a029b-d1cb-4471-80a5-234ad3b63eb4)
+![371051538-a819459a-4715-44ed-9ef1-e6d6e7521715](https://github.com/user-attachments/assets/8350f268-53fc-4790-af83-09ef6486e196)
 
 
 # Scary Joiner
@@ -52,7 +52,7 @@
 
 
 
-![2024-12-03 15-50-15](https://github.com/user-attachments/assets/bcceef10-b897-4b5d-adf6-cf8d3652ad53)
+![2024-12-03 15-50-15](https://github.com/user-attachments/assets/b6036aa4-67f8-4920-ac2a-cca004e6f22f)
 
 
 ## Contact me
